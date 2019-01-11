@@ -71,4 +71,4 @@ __公益服务器有对违反公约的服务器进行打击的义务。__
 26. 公益服务器允许同时执行和遵守其他标准。
 27. 其他标准中的某项条例，在公约中未描述或相较宽松时，应按该标准中的条例执行，反之，应按公约中的条例执行。
 
-by @kasuganosoras 
+by [https://github.com/kasuganosoras](@kasuganosoras) 
