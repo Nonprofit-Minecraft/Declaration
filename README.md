@@ -12,3 +12,9 @@
 　　我们的制度，只有在取得充分共识的情况下才有可能得到真正实行，也才能得到实际效益；我们的事业，也只有在目标一致、得到认同的情况下才能蓬勃发展，也才能取得大成功。在当前急迫的情势下，在我们的目标大致相同的共识下，我们呼吁各公益服务器团结一致、合作互助、共同发展，联合起来！为我们事业的光明的未来和我们的美好夙愿共同奋斗，为行业的良好风气和环境不断地贡献力量，为世界的和谐美好献上祝福！
 
 　　祝愿公益服务器事业顺利！
+
+
+-----
+
+
+<a rel="license" href="http://creativecommons.org/licenses/by-nc-sa/4.0/"><img alt="知识共享许可协议" style="border-width:0" src="https://i.creativecommons.org/l/by-nc-sa/4.0/88x31.png" /></a><br />本作品采用<a rel="license" href="http://creativecommons.org/licenses/by-nc-sa/4.0/">知识共享署名-非商业性使用-相同方式共享 4.0 国际许可协议</a>进行许可。
